@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning About Coding
 - 💞️ I’m looking to collaborate on Coding With Other Peple
-- 📫 How to reach me Email me saifprettycool@gmail.com
+- 📫 How to reach me Email me ICodeCodeLearner
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Coding Is My Favourite
 
